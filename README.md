@@ -1,4 +1,4 @@
-🏝 **Working in expand my portfolio**
+🏝 **Working to expand my portfolio**
 
 <picture>
   <source
